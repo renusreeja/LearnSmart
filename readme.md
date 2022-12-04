@@ -1,2 +1,2 @@
-Learn Smart Website Link:
+Learn Smart Demo Video:
 https://youtu.be/wuYNSpsIt9Q
